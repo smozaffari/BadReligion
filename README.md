@@ -1,8 +1,7 @@
 ##Bad :no_entry_sign: Religion 
-==========
+
 Lyrics to songs from **Bad Religion**'s third album, _Suffer_:
-####"You are (the government)" 
-=======
+
 ![my picture](images/br.jpg)
 
 Image Credit: Jason Torres :bangbang:
